@@ -8,5 +8,5 @@ This Blog will be updated very soon
 
 > "Working on blog. Will be updated Soon"
 >
->   - Chris Wayne
+>   - Genuine
 
